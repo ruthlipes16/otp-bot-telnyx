@@ -11,3 +11,5 @@ BONUS
 
 - Telegram  @wheens
 - Instagram @litexap
+
+----DONT contact me to beg for free stuff, am not a charity organization 
