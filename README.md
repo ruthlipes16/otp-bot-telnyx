@@ -13,3 +13,5 @@ BONUS
 - Instagram @litexap
 
 ----DONT contact me to beg for free stuff, am not a charity organization 
+
+OTP BOT TELEGRAM, TELNYX API
